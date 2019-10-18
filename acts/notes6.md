@@ -1,4 +1,4 @@
-# BSF第6課 司提反的見證
+# BSF第5課 司提反的見證
 
 [使徒行傳6:8-7:60](https://www.biblegateway.com/quicksearch/?quicksearch=使徒行傳6:8-7:60&qs_version=CUVMPT)
 
