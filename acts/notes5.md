@@ -1,4 +1,4 @@
-# BSF第5課 教會增長與撒但的攻擊
+# BSF第4課 教會增長與撒但的攻擊
 
 [使徒行傳4:32-67](https://www.biblegateway.com/quicksearch/?quicksearch=使徒行傳4:32-67&qs_version=CUVMPT)
 
