@@ -2,7 +2,7 @@
 
 [使徒行傳4:32-67](https://www.biblegateway.com/quicksearch/?quicksearch=使徒行傳4:32-67&qs_version=CUVMPT)
 
->**重點**
+>**重點**  
 >    「他們就每日在殿裡、在家裡不住地教訓人，傳耶穌是基督。」(使徒行傳5:42)
 >
 >**本課大綱**  
