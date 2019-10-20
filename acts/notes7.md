@@ -79,7 +79,7 @@ B. 教會藉保羅擴展(使徒行傳9:1-30)
 
 掃羅聰穎過人。他通過堅守宗教傳統來表達自己對上帝的熱忱。他為人熱情、充滿雄心大志。他將心中的堅定信念付諸行動，深信宣稱耶穌為彌賽亞的人都是散佈異端邪説的和褻瀆上帝的。他努力在外在行為上符合律法的明文細則。然而，上帝的律法揭露我們內心的不義，和靠恩典得救的需要([羅馬書7:7](https://www.biblegateway.com/quicksearch/?quicksearch=羅馬書7:7&qs_version=CUVMPT))。
 
-掃羅恨透了這個他認為羞辱上帝的教派。他認為那個他們聲稱是彌賽亞、又是上帝兒子的人，明顯是被上帝咒詛的。被掛在木頭(十字架)上是被上帝咒詛的記號([申命記21:23](https://www.biblegateway.com/quicksearch/?quicksearch=申命記21:23&qs_version=CUVMPT))。掃羅一心只想除掉這班拿撒勒壞人([使徒行傳8:3,9:13,21,22:4,26:10-11](https://www.biblegateway.com/quicksearch/?quicksearch=使徒行傳8:3,9:13,21,22:4,26:10-11&qs_version=CUVMPT))。然而，靠著上帝的恩典，他變成了他們的一分子，更成了教會最偉大的領袖之一。終其一生，他仍為自己迫害過的人哀痛！他親身經歷了主耶穌基督的憐憫和恩o 13
+掃羅恨透了這個他認為羞辱上帝的教派。他認為那個他們聲稱是彌賽亞、又是上帝兒子的人，明顯是被上帝咒詛的。被掛在木頭(十字架)上是被上帝咒詛的記號([申命記21:23](https://www.biblegateway.com/quicksearch/?quicksearch=申命記21:23&qs_version=CUVMPT))。掃羅一心只想除掉這班拿撒勒壞人([使徒行傳8:3,9:13,21,22:4,26:10-11](https://www.biblegateway.com/quicksearch/?quicksearch=使徒行傳8:3,9:13,21,22:4,26:10-11&qs_version=CUVMPT))。然而，靠著上帝的恩典，他變成了他們的一分子，更成了教會最偉大的領袖之一。終其一生，他仍為自己迫害過的人哀痛！他親身經歷了主耶穌基督的憐憫和恩([提摩太前書1:13-15](https://www.biblegateway.com/quicksearch/?quicksearch=提摩太前書1:13-15&qs_version=CUVMPT))。
 
 ### 藉不尋常的信主經歷裝備掃羅(9:1-18)
 
