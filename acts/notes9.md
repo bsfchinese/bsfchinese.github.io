@@ -1,6 +1,6 @@
 ## 使徒行傳與使徒書信 第7課
 # 戰勝迫害
-使徒行傳第12章
+[使徒行傳第12章](https://www.biblegateway.com/quicksearch/?quicksearch=使徒行傳12&qs_version=CUVMPT)
 
 >**重點**  
 >「**上帝的道日見興旺，越發廣傳。**」(使徒行傳12:24)
