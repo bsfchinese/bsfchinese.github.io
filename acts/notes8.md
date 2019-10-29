@@ -1,4 +1,4 @@
-## 使徒行傳與使徒書信 第7課
+## 使徒行傳與使徒書信 - 第7課
 # 彼得的外邦人事工與安提阿教會
 
 [使徒行傳9:31-11:30](https://www.biblegateway.com/quicksearch/?quicksearch=使徒行傳9:31-11:30&qs_version=CUVMPT)
