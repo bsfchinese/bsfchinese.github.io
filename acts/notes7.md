@@ -1,5 +1,5 @@
-## 使徒行傳與使徒書信  
-# 第6課 - 腓利傳道、保羅信主
+## 使徒行傳與使徒書信 第6課  
+# 腓利傳道、保羅信主
 [使徒行傳8:1-9:30](https://www.biblegateway.com/quicksearch/?quicksearch=使徒行傳8:1-9:30&qs_version=CUVMPT)
 
 >**重點**  
