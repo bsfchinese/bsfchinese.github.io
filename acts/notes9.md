@@ -1,4 +1,4 @@
-## 使徒行傳與使徒書信 第7課
+## 使徒行傳與使徒書信 - 第8課
 # 戰勝迫害
 [使徒行傳第12章](https://www.biblegateway.com/quicksearch/?quicksearch=使徒行傳12&qs_version=CUVMPT)
 
