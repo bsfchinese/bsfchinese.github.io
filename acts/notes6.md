@@ -3,7 +3,7 @@
 [使徒行傳8:1-9:30](https://www.biblegateway.com/quicksearch/?quicksearch=使徒行傳8:1-9:30&qs_version=CUVMPT)
 
 >**重點**  
-    『那些分散的人往各處去傳道。』[使徒行傳8:4](https://www.biblegateway.com/quicksearch/?quicksearch=使徒行傳8:4&qs_version=CUVMPT)
+    『`那些分散的人往各處去傳道。`』[使徒行傳8:4](https://www.biblegateway.com/quicksearch/?quicksearch=使徒行傳8:4&qs_version=CUVMPT)
 >
 >**本課大綱**  
 A. 教會藉腓利擴展(使徒行傳第八章)  
