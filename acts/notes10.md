@@ -22,4 +22,4 @@
 
 **正如耶稣顺服的天父，所有基督徒都应该首先顺服主**。我们跟随为处死的人祷告的那位([经文出处](https://www.biblegateway.com/quicksearch/?quicksearch=Luke+23%3A34%3B+1+Peter++2%3A21-24&qs_version=CUVMPS))。 我们要像耶穌那样生活，没有比这更高的召命了。上帝叫作妻子的定睛于目标：她们敬虔的行为说不定就是上帝使用的器皿，将她们不信的丈夫带到基督那里([经文出处](https://www.biblegateway.com/quicksearch/?quicksearch=1+Corinthians+7%3A12-17&qs_version=CUVMPS))。 婚姻双方若存有分歧，言语就很容易成为武器([经文出处](https://www.biblegateway.com/quicksearch/?quicksearch=Proverbs+21%3A9,+19%3B+27%3A15-16%3B+James+3%3A8-10&qs_version=CUVMPS))。 因此，彼得强调的是品行，并加上“并非言语”(《和合本修订版》)。
 
-一如很多社会文化，美貌让女性在希腊和罗马的世界里得到某种势力。今日，女性仍比男性面对更人的压力要借着外貌确立自己的身份。**上帝赐人美貌，却呼呼的子民追求祂所珍视的恒久之美**。“人是看外貌，耶和华是看内心。”7美貌会衰退；真正的美却会借着“贞洁……敬畏……(以及)温柔、安靜的心”增长。
+一如很多社会文化，美貌让女性在希腊和罗马的世界里得到某种势力。今日，女性仍比男性面对更人的压力要借着外貌确立自己的身份。**上帝赐人美貌，却呼呼的子民追求祂所珍视的恒久之美**。“人是看外貌，耶和华是看内心。”([经文出处](https://www.biblegateway.com/quicksearch/?quicksearch=1+Samuel+16%3A7&qs_version=CUVMPS)) 美貌会衰退；真正的美却会借着“贞洁……敬畏……(以及)温柔、安靜的心”增长。
