@@ -68,3 +68,5 @@
 + **耶稣为何去监狱的灵那里**：去宣告祂的胜利。
 + **耶稣为何已升到天上去**：去作王，并执掌一切权柄。
 
+**脉络浮现了：耶稣为我们受苦，征服了祂受苦的子民所面对的每一个仇敌**。罪恶、死亡和撒但都向俯首称臣。耶稣的沉冤完全得到昭雪，万有都向俯首称臣。众天使、掌权者和一切权势都袖([经文出处](https://www.biblegateway.com/quicksearch/?quicksearch=1+Corinthians+15%3A24-28%3B+Philippians+2%3A9-11%3B+Colossians+2%3A15%3B+Revelation+19%3A11-20%3A15&qs_version=CUVMPS))。 耶稣从荣耀降世([经文出处](https://www.biblegateway.com/quicksearch/?quicksearch=John+1%3A1-3,+14,+18%3B+17%3A5&qs_version=CUVMPS))， 然后经过十字架及其苦难回到荣耀里([经文出处](https://www.biblegateway.com/quicksearch/?quicksearch=John+17%3A1-5,+24%3B+Philippians+2%3A5-11&qs_version=CUVMPS))。 凡与祂一同受苦的，也必与他一同得荣耀([经文出处](https://www.biblegateway.com/quicksearch/?quicksearch=Romans+8%3A17,+30&qs_version=CUVMPS))。 把你的痛苦交托给并期待已应许的喜乐吧 。
+
