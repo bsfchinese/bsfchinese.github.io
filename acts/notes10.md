@@ -68,11 +68,11 @@
 
 **脉络浮现了：耶稣为我们受苦，征服了祂受苦的子民所面对的每一个仇敌**。罪恶、死亡和撒但都向祂俯首称臣。耶稣的沉冤完全得到昭雪，万有都向祂俯首称臣。众天使、掌权者和一切权势都服從祂([经文出处](https://www.biblegateway.com/quicksearch/?quicksearch=1+Corinthians+15%3A24-28%3B+Philippians+2%3A9-11%3B+Colossians+2%3A15%3B+Revelation+19%3A11-20%3A15&qs_version=CUVMPS))。 耶稣从荣耀降世([经文出处](https://www.biblegateway.com/quicksearch/?quicksearch=John+1%3A1-3,+14,+18%3B+17%3A5&qs_version=CUVMPS))， 然后经过十字架及其苦难回到荣耀里([经文出处](https://www.biblegateway.com/quicksearch/?quicksearch=John+17%3A1-5,+24%3B+Philippians+2%3A5-11&qs_version=CUVMPS))。 凡与祂一同受苦的，也必与他一同得荣耀([经文出处](https://www.biblegateway.com/quicksearch/?quicksearch=Romans+8%3A17,+30&qs_version=CUVMPS))。 把你的痛苦交托给祂并期待祂已应许的喜乐吧 。
 
-**「两个难解的问题(3:19-21)**
+**两个难解的问题 (3:19-21)**
 
 监狱里的灵? (3:19-20)
 
-这些经节是什么意思呢？试考虑三个问题：监狱里的灵指谁？基督宣告些什么？在什么时候言告？**“谁”的三个答案，产生至少三种不同的解读。** 注意彼得用的字眼是“宣讲” (《新汉语译本》)，而不是“布道”或“传讲福音”。
+这些经节是什么意思呢？试考虑三个问题：监狱里的灵指谁？基督宣告些什么？在什么时候宣告？**“谁”的三个答案，产生至少三种不同的解读。** 注意彼得用的字眼是“宣讲” (《新汉语译本》)，而不是“布道”或“传讲福音”。
 
 **谁？挪亚世代的非信徒**  
 + 宣告什么——耶稣得胜的受死和/或非信徒受审判
