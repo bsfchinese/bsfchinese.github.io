@@ -31,7 +31,7 @@ Now, chapters 13 and 14 show three main shifts emphasized in the rest of Acts.
 
 **The Three Great Missionary Journeys of Acts**
 
-Several points help us see how the Spirit moved Paul into his role as apostle to the Gentiles. 4 
+Several points help us see how the Spirit moved Paul into his role as apostle to the Gentiles. (Saul’s conversion and calling: [Acts 9:1-16](https://www.biblegateway.com/quicksearch/?quicksearch=Acts+9%3A1-16&qs_version=CUVMPT))
 + Paul’s call to his first missionary journey was at least 11 years into his active, faithful ministry. 
 + Paul’s journeys total 10 to 13 years of his overall ministry. 
 + Paul’s journeys were filled with practical and spiritual challenges and provisions.
@@ -39,12 +39,12 @@ Several points help us see how the Spirit moved Paul into his role as apostle to
 **The Beginning of the Missionary Movement – Acts 13:1-4**
 
 Luke records five “prophets and teachers” as church leaders at Antioch in Syria. They depended on the Holy Spirit to serve the people. The congregation flourished as they preached, taught and directed. Their names and this local church’s reputation show Jesus Christ’s purposes for His Church. Every local church is to serve as the Spirit-filled, physically present body of Christ showing God’s kingdom to the world. 
-+ They embraced unity in Christ among diverse abilities, ethnicities and socio-economic standings. 5 
++ They embraced unity in Christ among diverse abilities, ethnicities and socio-economic standings. (Antioch’s diversity: [Acts 11:19-26; 13:1](https://www.biblegateway.com/quicksearch/?quicksearch=Acts+11%3A19-26%3B+13%3A1&qs_version=CUVMPT))
 + They showed the love of Christ that conquers fears, prejudices, hatred, sins and evil. 
 + They shared the light of Christ that conquers darkness and confusion. 
 + They displayed supernatural new life in Christ that conquers old ways, death and hopelessness. 
 
-**The Spirit reproduced Christ’s love among them for those trapped in sin and spiritual darkness**. They worshipped, fasted and prayed. They asked the Holy Spirit to show them how to share the gospel. The Spirit called them to send Paul and Barnabas. They were the first missionaries to purposely go to a new place to share the gospel with all people they encountered. They and their helper, John Mark, the cousin of Barnabas, specifically planned to minister to foreign, idolatrous Gentiles. 6 The people were grateful to be used by God to form new churches despite great cost to themselves. 
+**The Spirit reproduced Christ’s love among them for those trapped in sin and spiritual darkness**. They worshipped, fasted and prayed. They asked the Holy Spirit to show them how to share the gospel. The Spirit called them to send Paul and Barnabas. They were the first missionaries to purposely go to a new place to share the gospel with all people they encountered. They and their helper, John Mark, the cousin of Barnabas, specifically planned to minister to foreign, idolatrous Gentiles. (Barnabas: [Acts 4:36-37; 11:22, 25-26](https://www.biblegateway.com/quicksearch/?quicksearch=Acts+4%3A36-37%3B+11%3A22,+25-26&qs_version=CUVMPT)) The people were grateful to be used by God to form new churches despite great cost to themselves. 
 
 **Paul’s First Mission – Acts 13:5-14:21**
 
