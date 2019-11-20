@@ -108,15 +108,15 @@ There are five points to notice in their pioneering visit to Iconium:
 + Unbelieving Jews turned Gentiles against them.
 + They stayed a long time to encourage new converts.
 + The entire city divided between those who supported and opposed Jesus Christ and His messengers.
-+ The missionaries wisely fled their enemies’ murderous plot. 17 
++ The missionaries wisely fled their enemies’ murderous plot. (When to flee: [Matthew 10:16, 23](https://www.biblegateway.com/quicksearch/?quicksearch=Matthew+10%3A16,+23&qs_version=CUVMPT)) 
 
 **Mission in Lystra – Acts 14:8-20**
 
-Unlike Iconium, Luke reports very few Jews and no synagogue in Lystra. The Gentiles spoke some Greek, but mostly “the speech of Lycaonia,” unknown to the missionaries. This is where Paul connected with Timothy and his family. 18
+Unlike Iconium, Luke reports very few Jews and no synagogue in Lystra. The Gentiles spoke some Greek, but mostly “the speech of Lycaonia,” unknown to the missionaries. This is where Paul connected with Timothy and his family. (Paul meets Timothy: [Acts 16:1-3](https://www.biblegateway.com/quicksearch/?quicksearch=Acts+16%3A1-3&qs_version=CUVMPT))
 
 **The healing of the disabled man – 14:8-10**
 
-Peter had spoken by the Holy Spirit to heal the lame man in Jerusalem. 19 Now Paul commanded a man crippled from birth to stand. As he believed and obeyed, he miraculously received God’s healing. 
+Peter had spoken by the Holy Spirit to heal the lame man in Jerusalem. (Lame man: [Acts 3](https://www.biblegateway.com/quicksearch/?quicksearch=Acts+3&qs_version=CUVMPT)) Now Paul commanded a man crippled from birth to stand. As he believed and obeyed, he miraculously received God’s healing. 
 
 **The attempt to worship the apostles – 14:11-14**
 
@@ -125,12 +125,12 @@ The superstitious crowd shouted, “The gods have come down to us in human form 
 **Paul’s missionary appeal – 14:15-18**
 
 Paul started where today’s missionaries to places of unbelief or among those denying the Creator God also begin.
-+ Paul appeals to God-given conscience and reason in every person. 20
++ Paul appeals to God-given conscience and reason in every person. (God gives conscience: [Romans 2:12-15](https://www.biblegateway.com/quicksearch/?quicksearch=Romans+2%3A12-15&qs_version=CUVMPT))
 + He reveals that God created all things. He points to evidences around them.
 + He speaks of God’s grace and kindness to provide for their needs.
 + He points out the true God is unlike the idols they worship in vain.
 + He calls for repentance – to turn from worship of “no-god” (empty things) to worship of the One living God.
-+ He warns that God does not allow Gentiles to live by their own ideas without judgment. 21 
++ He warns that God does not allow Gentiles to live by their own ideas without judgment. (God’s wrath revealed: [Romans 1:18-32](https://www.biblegateway.com/quicksearch/?quicksearch=Romans+1%3A18-32&qs_version=CUVMPT)) 
 
 **Paulʼs stoning – 14:19**
 
@@ -140,31 +140,31 @@ Unbelieving Jews from Iconium and Pisidian Antioch arrived. They sought to destr
 
 Believers gathered around Paul. Possibly the group included Barnabas, Eunice , Lois, Timothy, the man Paul healed and other converts. Paul suddenly got up, like miraculous life from the dead.
 
-From this experience, Paul drew such comfort and assurance of God’s care for him that later he was able to encourage others with power. 22 He went back into Lystra with strength from God. What a testimony of God’s power to new converts and to God’s enemies!
+From this experience, Paul drew such comfort and assurance of God’s care for him that later he was able to encourage others with power. (Encouragement: [2 Corinthians 1:8-11; 4:9-18](https://www.biblegateway.com/quicksearch/?quicksearch=2+Corinthians+1%3A8-11%3B+4%3A9-18&qs_version=CUVMPT)) He went back into Lystra with strength from God. What a testimony of God’s power to new converts and to God’s enemies!
 
 ### Mission in Derbe – Acts 14:21
 
-The next day Paul and Barnabas left to walk the 30 miles (48 km) to Derbe. It seems God said , “Time to rest from enemies!” They continued ministering in Derbe. They saw many come to faith with no record of conflicts or persecution. Gaius, Paul’s companion and fellow worker on a later journey, 23 was likely converted at this time. Gracious, loving, empathetic Paul drew people from all classes and places to Jesus Christ. Paul and Barnabas consistently showed triumph through the Spirit when suffering. No wonder new converts were willing to endure hardships for the name of Christ.
+The next day Paul and Barnabas left to walk the 30 miles (48 km) to Derbe. It seems God said , “Time to rest from enemies!” They continued ministering in Derbe. They saw many come to faith with no record of conflicts or persecution. Gaius, Paul’s companion and fellow worker on a later journey, (Gaius: [Acts 20:4](https://www.biblegateway.com/quicksearch/?quicksearch=Acts+20%3A4&qs_version=CUVMPT)) was likely converted at this time. Gracious, loving, empathetic Paul drew people from all classes and places to Jesus Christ. Paul and Barnabas consistently showed triumph through the Spirit when suffering. No wonder new converts were willing to endure hardships for the name of Christ.
 
 ## Paul’s Return to Antioch – Acts 14:22-28
 
 The shortest, easiest route home for the two missionaries was the imperial highway east then south to Syria. But Paul and Barnabas were true shepherds. They cared for the lambs left behind among wolves in Lystra, Iconium and Pisidian Antioch. They suffered much persecution themselves in all these places. 
 
-Paul considered it impossible to return to Antioch in Syria without revisiting the new believers. It meant a longer and more dangerous return route to see the new converts firmly rooted in Christ. 24 Discipleship takes time. It also involves sacrifice and hardships for leaders. Yet eternal fruit comes through the suffering of the cross. 25 What people have gone the extra mile to firmly root you in Christ? How will you praise God for His love for you through them? How could you best thank them this week?
+Paul considered it impossible to return to Antioch in Syria without revisiting the new believers. It meant a longer and more dangerous return route to see the new converts firmly rooted in Christ. (Rooted in Christ: [Ephesians 3:17](https://www.biblegateway.com/quicksearch/?quicksearch=Ephesians+3%3A17&qs_version=CUVMPT)) Discipleship takes time. It also involves sacrifice and hardships for leaders. Yet eternal fruit comes through the suffering of the cross. (Take up cross: [Luke 9:23](https://www.biblegateway.com/quicksearch/?quicksearch=Luke+9%3A23&qs_version=CUVMPT)) What people have gone the extra mile to firmly root you in Christ? How will you praise God for His love for you through them? How could you best thank them this week?
 
 ### Revisiting Cities Through Asia Minor – 14:21-25
 
 Paul’s four aims in ministering to new converts still apply today.
 + Strengthen disciples in faith. Paul and Barnabas confirmed the disciples stood firmly by faith in the person and work of Jesus Christ. They were confirmed by their experience of the Holy Spirit’s enabling power and comforted by the expectancy of Christ’s return. Paul and Barnabas exhorted them to carry on in faith.
-+ Prepare disciples for trials. Paul prepared these new Christians to expect trials. Trials accompany the joy of the goodness of Jesus Christ. 26 They had witnessed Paul and Barnabas embrace their glorious inheritance – the kingdom of God, while enduring trials. All believers must be willing to share our King’s temporary rejection in this world.
++ Prepare disciples for trials. Paul prepared these new Christians to expect trials. Trials accompany the joy of the goodness of Jesus Christ. (Trials accompany joy: [Mark 10:30; John 16:1–4; 1 Thessalonians 3:3–4; 1 Peter 1:7–8](https://www.biblegateway.com/quicksearch/?quicksearch=Mark+10%3A30%3B+John+16%3A1–4%3B+1+Thessalonians+3%3A3–4%3B+1+Peter+1%3A7–8&qs_version=CUVMPT)) They had witnessed Paul and Barnabas embrace their glorious inheritance – the kingdom of God, while enduring trials. All believers must be willing to share our King’s temporary rejection in this world.
 + Establish disciples as a church. Gentile converts needed to follow the God-given pattern for forming local churches. Paul and Barnabas identified and trained each church’s leaders as shepherds under the Lord Jesus Christ. During these return visits, Paul and Barnabas appointed elders at a meeting of prayer and fasting in each place.
 + Commit disciples to the Lord. Paul and Barnabas did not know whether the Lord would ever lead them to return. How could these new Christians stand firm? They were spiritually immature and without New Testament writings. Yet, it was not Paul and Barnabas who had given them new life through salvation. The Lord Jesus Christ saves. They were His responsibility. He is able to keep His own in every circumstance. To say farewell is to commit “them to the Lord, in whom they had put their trust.” 
 
 ### Return to Antioch in Syria – 14:26-28
 
-Paul and Barnabas had been away from their home church at Antioch in Syria for two or three years. The church sent them out to accomplish God’s work, which they had finished. God promises our labor will never be in vain when it is done for Him by faith in the power of the Holy Spirit. 27
+Paul and Barnabas had been away from their home church at Antioch in Syria for two or three years. The church sent them out to accomplish God’s work, which they had finished. God promises our labor will never be in vain when it is done for Him by faith in the power of the Holy Spirit. (Labor not in vain: [1 Corinthians 15:58](https://www.biblegateway.com/quicksearch/?quicksearch=1+Corinthians+15%3A58&qs_version=CUVMPT))
 
-The two reported the Spirit’s work to their fellow church members. They told about new opportunities to advance Christ’s church. Paul and Barnabas gave them spiritual vision for the power of the gospel to transform individuals throughout the whole world. 28 Paul and Barnabas stayed for a long time at Antioch for rest and recuperation. However, God had work for them at home, too. They led their local church members to fully embrace their inheritance in Christ.
+The two reported the Spirit’s work to their fellow church members. They told about new opportunities to advance Christ’s church. Paul and Barnabas gave them spiritual vision for the power of the gospel to transform individuals throughout the whole world. (Power of the gospel: [Romans 1:16](https://www.biblegateway.com/quicksearch/?quicksearch=Romans+1%3A16&qs_version=CUVMPT)) Paul and Barnabas stayed for a long time at Antioch for rest and recuperation. However, God had work for them at home, too. They led their local church members to fully embrace their inheritance in Christ.
 
 Believers carry responsibilities to steward our inheritance well – in our church communities and by investing in the unreached people of the world.
 
@@ -172,16 +172,16 @@ Believers carry responsibilities to steward our inheritance well – in our chur
 
 >**Hold Fast**
 >
->Acts 13 and 14 prove that speaking of Christ in the power of the Holy Spirit brings results. The Holy Spirit’s power is inseparable from His fruitful character. 29 We must speak the truth with grace and love. Believers love people by serving God in faith. We leave the results to Him. It is only by the power of the Holy Spirit that doubters become convinced that Jesus is the resurrected Savior and Lord. Sometimes, there are almost immediate conversions of those who have never heard the gospel. Often , individuals hear the truth of Jesus Christ numerous times over days, weeks or even years before they respond in faith.
+>Acts 13 and 14 prove that speaking of Christ in the power of the Holy Spirit brings results. The Holy Spirit’s power is inseparable from His fruitful character. (Fruit of the Spirit: [Galatians 5:22-23](https://www.biblegateway.com/quicksearch/?quicksearch=Galatians+5%3A22-23&qs_version=CUVMPT)) We must speak the truth with grace and love. Believers love people by serving God in faith. We leave the results to Him. It is only by the power of the Holy Spirit that doubters become convinced that Jesus is the resurrected Savior and Lord. Sometimes, there are almost immediate conversions of those who have never heard the gospel. Often , individuals hear the truth of Jesus Christ numerous times over days, weeks or even years before they respond in faith.
 >
->As the church at Antioch shows, hope is more than wishful thinking that someone , somewhere will be saved. We go and share the gospel with hope (certain trust) in God’s will and ability to save. God saves despite inevitable opposition by Satan. We love people in the power of the Holy Spirit to break down barriers. We are to persevere in prayer 30 and trust in God’s promises. 31
+>As the church at Antioch shows, hope is more than wishful thinking that someone , somewhere will be saved. We go and share the gospel with hope (certain trust) in God’s will and ability to save. God saves despite inevitable opposition by Satan. We love people in the power of the Holy Spirit to break down barriers. We are to persevere in prayer (Praying: [James 5:16; 1 John 5:14](https://www.biblegateway.com/quicksearch/?quicksearch=James+5%3A16%3B+1+John+5%3A14&qs_version=CUVMPT)) and trust in God’s promises. (God’s promises: [Ephesians 1:19–23; 2 Corinthians 1:20](https://www.biblegateway.com/quicksearch/?quicksearch=Ephesians+1%3A19–23%3B+2+Corinthians+1%3A20&qs_version=CUVMPT))
 >
->Believers can expect God’s comfort in times of opposition and persecution. Sometimes Christ’s servants suffer intense spiritual opposition and physical persecution like Paul and Barnabas. But circumstances have no power to hinder what God plans for us to experience. Comfort comes through perseverance in the awareness of fellowship with Christ in His suffering. 32 Comfort comes as we find His strength is sufficient for any emergency or need. 33 Another comfort is the satisfaction of knowing that this kind of “death” produces “life” in others. 34
+>Believers can expect God’s comfort in times of opposition and persecution. Sometimes Christ’s servants suffer intense spiritual opposition and physical persecution like Paul and Barnabas. But circumstances have no power to hinder what God plans for us to experience. Comfort comes through perseverance in the awareness of fellowship with Christ in His suffering. (Comfort in suffering: [Philippians 3:8–11](https://www.biblegateway.com/quicksearch/?quicksearch=Philippians+3%3A8–11&qs_version=CUVMPT)) Comfort comes as we find His strength is sufficient for any emergency or need. (God’s sufficient provision: [2 Corinthians 12:7-10](https://www.biblegateway.com/quicksearch/?quicksearch=2+Corinthians+12%3A7-10&qs_version=CUVMPT)) Another comfort is the satisfaction of knowing that this kind of “death” produces “life” in others. (Kernel: [John 12:24; 2 Corinthians 4:12](https://www.biblegateway.com/quicksearch/?quicksearch=John+12%3A24%3B+2+Corinthians+4%3A12&qs_version=CUVMPT))
 >
 >God will perfectly provide periods of rest from opposition while we continue serving him. Derbe was such a season of respite and refreshment between trials. However, it was not a season of rest from ministering to others. If you are in the midst of a trial, take courage. Carry on and have faith that God will lift it in His time when His purposes have been accomplished . If there is no current opposition, carry on by making most of your opportunity to freely serve.
 >
 >**Apply**
 >
->It Have you received justification ? This is to possess God’s forgiveness from your sin and Christ’s righteous standing by grace through faith. If not, today is the day the Spirit of God and the Word of God call you to come. 35 Justification is not earned by your good life.
+>It Have you received justification ? This is to possess God’s forgiveness from your sin and Christ’s righteous standing by grace through faith. If not, today is the day the Spirit of God and the Word of God call you to come. (Salvation today: [2 Corinthians 6:2](https://www.biblegateway.com/quicksearch/?quicksearch=2+Corinthians+6%3A2&qs_version=CUVMPT)) Justification is not earned by your good life.
 >
 >It arrives with believing the death, resurrection and exaltation of Jesus Christ won this for you. Do you believe in Him for new life? When you consider where God would have you take the gospel, do you focus on the spiritual opportunities or the potential physical costs? Loving people and speaking God’s truth through the power of the Spirit overcomes darkness and evil. First, have you started loving people and sharing truth right where God already has you? Next, will you pray and actively seek the next person, group or community that needs to see how Jesus Christ changes everything? It may be in a new city or with a group of people nearby in an age group, culture or religion completely foreign to you.
