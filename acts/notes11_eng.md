@@ -8,9 +8,9 @@ Acts 13-14
 >
 >**This Lesson**
 >
->**A. The Spirit Initiates Missions – Acts 13: 1-4  
->**B. Paul’s First Mission – Acts 13: 5-14: 21  
->**C. Paul’s Return to Antioch – Acts 14: 22-28 
+>**A. The Spirit Initiates Missions – Acts 13:1-4**  
+>**B. Paul’s First Mission – Acts 13:5-14:21**  
+>**C. Paul’s Return to Antioch – Acts 14:22-28** 
 >
 >**Engage**
 >
