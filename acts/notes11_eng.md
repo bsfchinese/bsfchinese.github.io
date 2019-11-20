@@ -8,9 +8,9 @@ Acts 13-14
 >
 >**This Lesson**
 >
->A. The Spirit Initiates Missions – Acts 13: 1-4  
->B. Paul’s First Mission – Acts 13: 5-14: 21  
->C. Paul’s Return to Antioch – Acts 14: 22-28 
+>**A. The Spirit Initiates Missions – Acts 13: 1-4  
+>**B. Paul’s First Mission – Acts 13: 5-14: 21  
+>**C. Paul’s Return to Antioch – Acts 14: 22-28 
 >
 >**Engage**
 >
@@ -20,112 +20,112 @@ Acts 13-14
 
 ## The Spirit Initiates Missions – Acts 13:1-4
 
-**The Second Division of Acts**
+### The Second Division of Acts
 
-Acts 13 introduces the Holy Spirit’s next initiatives in God’s plan for Jesus Christ’s Church. (Jesus’ commands: [Matthew 28:18-20; Acts 1:8](https://www.biblegateway.com/quicksearch/?quicksearch=Matthew+28%3A18-20%3B+Acts+1%3A8&qs_version=ESV)) Since the Day of Pentecost, the Spirit spread the church in Jerusalem, all Judea and Samaria. The Spirit had displayed His indwelling power in salvation of Jews and God-fearing Gentiles.
+Acts 13 introduces **the Holy Spirit’s next initiatives in God’s plan for Jesus Christ’s Church**. (Jesus’ commands: [Matthew 28:18-20; Acts 1:8](https://www.biblegateway.com/quicksearch/?quicksearch=Matthew+28%3A18-20%3B+Acts+1%3A8&qs_version=ESV)) Since the Day of Pentecost, the Spirit spread the church in Jerusalem, all Judea and Samaria. The Spirit had displayed His indwelling power in salvation of Jews and God-fearing Gentiles.
 
-Now, chapters 13 and 14 show three main shifts emphasized in the rest of Acts. 
-+ Gospel preaching moves from the Jews to Gentiles. 
-+ Church planting moves from Jerusalem to Antioch. 
-+ Church expansion moves from Peter to Paul. 
+Now, **chapters 13 and 14 show three main shifts emphasized in the rest of Acts**. 
++ Gospel preaching moves from the Jews to **Gentiles. 
++ Church planting moves from Jerusalem to **Antioch. 
++ Church expansion moves from Peter to **Paul. 
 
-**The Three Great Missionary Journeys of Acts**
+### The Three Great Missionary Journeys of Acts
 
-Several points help us see how the Spirit moved Paul into his role as apostle to the Gentiles. (Saul’s conversion and calling: [Acts 9:1-16](https://www.biblegateway.com/quicksearch/?quicksearch=Acts+9%3A1-16&qs_version=ESV))
-+ Paul’s call to his first missionary journey was at least 11 years into his active, faithful ministry. 
-+ Paul’s journeys total 10 to 13 years of his overall ministry. 
-+ Paul’s journeys were filled with practical and spiritual challenges and provisions.
+Several points help us see how **the Spirit moved Paul into his role as apostle to the Gentiles**. (Saul’s conversion and calling: [Acts 9:1-16](https://www.biblegateway.com/quicksearch/?quicksearch=Acts+9%3A1-16&qs_version=ESV))
++ Paul’s call to his first missionary journey was **at least 11 years into his active, faithful ministry**. 
++ Paul’s journeys total **10 to 13 years of his overall ministry**. 
++ Paul’s journeys were **filled with practical and spiritual challenges and provisions**.
 
-**The Beginning of the Missionary Movement – Acts 13:1-4**
+### The Beginning of the Missionary Movement – Acts 13:1-4
 
-Luke records five “prophets and teachers” as church leaders at Antioch in Syria. They depended on the Holy Spirit to serve the people. The congregation flourished as they preached, taught and directed. Their names and this local church’s reputation show Jesus Christ’s purposes for His Church. Every local church is to serve as the Spirit-filled, physically present body of Christ showing God’s kingdom to the world. 
-+ They embraced unity in Christ among diverse abilities, ethnicities and socio-economic standings. (Antioch’s diversity: [Acts 11:19-26; 13:1](https://www.biblegateway.com/quicksearch/?quicksearch=Acts+11%3A19-26%3B+13%3A1&qs_version=ESV))
-+ They showed the love of Christ that conquers fears, prejudices, hatred, sins and evil. 
-+ They shared the light of Christ that conquers darkness and confusion. 
-+ They displayed supernatural new life in Christ that conquers old ways, death and hopelessness. 
+Luke records five “prophets and teachers” as church leaders at Antioch in Syria. They depended on the Holy Spirit to serve the people. The congregation flourished as they preached, taught and directed. Their names and this local church’s reputation show Jesus Christ’s purposes for His Church. **Every local church is to serve as the Spirit-filled, physically present body of Christ** showing God’s kingdom to the world. 
++ They embraced **unity in Christ** among diverse abilities, ethnicities and socio-economic standings. (Antioch’s diversity: [Acts 11:19-26; 13:1](https://www.biblegateway.com/quicksearch/?quicksearch=Acts+11%3A19-26%3B+13%3A1&qs_version=ESV))
++ They showed the **love of Christ** that conquers fears, prejudices, hatred, sins and evil. 
++ They shared the **light of Christ** that conquers darkness and confusion. 
++ They displayed supernatural **new life** in Christ that conquers old ways, death and hopelessness. 
 
 **The Spirit reproduced Christ’s love among them for those trapped in sin and spiritual darkness**. They worshipped, fasted and prayed. They asked the Holy Spirit to show them how to share the gospel. The Spirit called them to send Paul and Barnabas. They were the first missionaries to purposely go to a new place to share the gospel with all people they encountered. They and their helper, John Mark, the cousin of Barnabas, specifically planned to minister to foreign, idolatrous Gentiles. (Barnabas: [Acts 4:36-37; 11:22, 25-26](https://www.biblegateway.com/quicksearch/?quicksearch=Acts+4%3A36-37%3B+11%3A22,+25-26&qs_version=ESV)) The people were grateful to be used by God to form new churches despite great cost to themselves. 
 
-**Paul’s First Mission – Acts 13:5-14:21**
+## Paul’s First Mission – Acts 13:5-14:21
 
 These suggestions may help you more fully engage in this first missionary journey. 
-+ Locate each place on the map. Each place was visited twice, except Derbe and Cyprus. 
-+ Visualize the missionaries’ encounters. The first stops in each place focused on evangelism. They proclaimed the good news in faith that the Spirit would give many new lives in Christ. The return stops in each place on their way home focused on confirming new Christians in their faith and appointing leaders. 
-+ Remember this entire trip was by sea or on foot. The missionaries walked more than 800 miles (1,287 kilometers) on mountainous roads. Romans counted 16 miles (25 kilometers) average walking for one day. 
-+ Paul and Barnabas were missionaries between two and three years before returning to Antioch church. Estimated dates are between AD 48-49. 
++ **Locate each place on the map**. Each place was visited twice, except Derbe and Cyprus. 
++ **Visualize the missionaries’ encounters**. The first stops in each place focused on evangelism. They proclaimed the good news in faith that the Spirit would give many new lives in Christ. The return stops in each place on their way home focused on confirming new Christians in their faith and appointing leaders. 
++ **Remember this entire trip was by sea or on foot**. The missionaries walked more than 800 miles (1,287 kilometers) on mountainous roads. Romans counted 16 miles (25 kilometers) average walking for one day. 
++ **Paul and Barnabas were missionaries between two and three years before returning to Antioch church**. Estimated dates are between AD 48-49. 
 
-**Mission in Cyprus — Acts 13:5-12**
+### Mission in Cyprus — Acts 13:5-12
 
 **Salamis – 13:5**
 
-Barnabas’s love for his homeland and people made Cyprus a good first stop. The missionaries likely departed in March at the start of the navigation season for the 130-mile (209 km) trip. They came into the harbor of Salamis. It was the largest city. They preached to Jews in synagogues. Luke records no response. They walked 100 miles (161 km) to Paphos.
+**Barnabas’s love for his homeland and people made Cyprus a good first stop**. The missionaries likely departed in March at the start of the navigation season for the 130-mile (209 km) trip. They came into the harbor of Salamis. It was the largest city. They preached to Jews in synagogues. Luke records no response. They walked 100 miles (161 km) to Paphos.
 
 **Paphos – 13:6-12**
 
-Like many modern cities, Paphos was known for shameless immorality, idolatry and occult superstitions. God responded to its people’s darkness, impurity and demonic activity with grace. He sent His Spirit and Word to the people. God offered His gospel in the lives of these missionaries. How is God’s love reflected in your prayers, attitudes and reactions to ungodliness?
+Like many modern cities, Paphos was known for shameless immorality, idolatry and occult superstitions. **God responded to its people’s darkness, impurity and demonic activity with grace**. He sent His Spirit and Word to the people. God offered His gospel in the lives of these missionaries. How is God’s love reflected in your prayers, attitudes and reactions to ungodliness?
 
-The city’s Roman leader, Sergius Paulus, was eager to hear the gospel. But he also depended on the advice and sorcery of a Jewish false prophet called Elymas. He sought to prevent the leader’s conversion. The Spirit showed His power through Paul to overcome Satan’s evil power in Elymas. Instead of blocking God’s work, Elymas’ blindness caused the leader to believe. No one can stop an eternal work of our sovereign God. 
+The city’s Roman leader, Sergius Paulus, was eager to hear the gospel. But he also depended on the advice and sorcery of a Jewish false prophet called Elymas. He sought to prevent the leader’s conversion. **The Spirit showed His power through Paul to overcome Satan’s evil power in Elymas**. Instead of blocking God’s work, Elymas’ blindness caused the leader to believe. No one can stop an eternal work of our sovereign God. 
 
-**Mission in Pisidian Antioch – Acts 13:13-52**
+### Mission in Pisidian Antioch – Acts 13:13-52
 
-Paul’s choice of Pisidian Antioch is unsurprising. He focused on strategic centers of worldwide influence. This city (not the same as Antioch in Syria) was the nerve center of Asia Minor. All lines of communication radiated from this hub. This effort promised widespread spiritual results worth facing the dangers to arrive.
+Paul’s choice of Pisidian Antioch is unsurprising. He focused on strategic centers of worldwide influence. This city (not the same as Antioch in Syria) was the nerve center of Asia Minor. All lines of communication radiated from this hub. **This effort promised widespread spiritual results worth facing the dangers to arrive**.
 
 **John Mark’s desertion – 13:13-14**
 
-On the way, John Mark quit and returned home. God’s Word gives no reason. Speculations center on concerns that cause many Christians to fail by never starting to serve God in the first place. Was Mark homesick? Was he too uncomfortable among Gentiles in foreign cultures? Was he afraid of hardships and dangers? Whatever reason, John Mark failed in this mission.
+On the way, John Mark quit and returned home. God’s Word gives no reason. **Speculations center on concerns that cause many Christians to fail by never starting to serve God in the first place**. Was Mark homesick? Was he too uncomfortable among Gentiles in foreign cultures? Was he afraid of hardships and dangers? Whatever reason, John Mark failed in this mission.
 
-However, life in Christ means failure is not fatal to faith. The Spirit finishes what He starts. (Spirit finishes work: [Philippians 1:6](https://www.biblegateway.com/quicksearch/?quicksearch=Philippians+1%3A6&qs_version=ESV)) John Mark joined Barnabas on later missions. Still later, Paul commended him as a faithful fellow worker. (John Mark: [Colossians 4:10; 2 Timothy 4:11](https://www.biblegateway.com/quicksearch/?quicksearch=Colossians+4%3A10%3B+2+Timothy+4%3A11&qs_version=ESV)) God chose Mark to write the Gospel that most clearly reveals Jesus Christ as God’s servant, who “did not come to be served, but to serve, and to give his life as a ransom for many .” (Servant: [Mark 10:45](https://www.biblegateway.com/quicksearch/?quicksearch=Mark+10%3A45&qs_version=ESV)) Further, Peter called Mark “my son,” suggesting he, too, was a mentor to Mark. (Mentor: [1 Peter 5:13](https://www.biblegateway.com/quicksearch/?quicksearch=1+Peter+5%3A13&qs_version=ESV))
+However, **life in Christ means failure is not fatal to faith**. The Spirit finishes what He starts. (Spirit finishes work: [Philippians 1:6](https://www.biblegateway.com/quicksearch/?quicksearch=Philippians+1%3A6&qs_version=ESV)) John Mark joined Barnabas on later missions. Still later, Paul commended him as a faithful fellow worker. (John Mark: [Colossians 4:10; 2 Timothy 4:11](https://www.biblegateway.com/quicksearch/?quicksearch=Colossians+4%3A10%3B+2+Timothy+4%3A11&qs_version=ESV)) God chose Mark to write the Gospel that most clearly reveals Jesus Christ as God’s servant, who “did not come to be served, but to serve, and to give his life as a ransom for many .” (Servant: [Mark 10:45](https://www.biblegateway.com/quicksearch/?quicksearch=Mark+10%3A45&qs_version=ESV)) Further, Peter called Mark “my son,” suggesting he, too, was a mentor to Mark. (Mentor: [1 Peter 5:13](https://www.biblegateway.com/quicksearch/?quicksearch=1+Peter+5%3A13&qs_version=ESV))
 
-God never quit shaping John Mark into a sacrificial servant. God will not quit on you. Have you failed to accept or keep a commitment? Do not lean on your excuses or reasons. Lean on God’s promise to restore you. Confess your weakness. Accept the Spirit’s power to produce strength in its place. (Spirit’s power: [Ephesians 3:16; Colossians 1:11](https://www.biblegateway.com/quicksearch/?quicksearch=Ephesians+3%3A16%3B+Colossians+1%3A11&qs_version=ESV)) Humbly step forward in faith to restore trust in relationships and to serve others for Jesus. 
+**God never quit shaping John Mark into a sacrificial servant**. God will not quit on you. Have you failed to accept or keep a commitment? Do not lean on your excuses or reasons. Lean on God’s promise to restore you. Confess your weakness. Accept the Spirit’s power to produce strength in its place. (Spirit’s power: [Ephesians 3:16; Colossians 1:11](https://www.biblegateway.com/quicksearch/?quicksearch=Ephesians+3%3A16%3B+Colossians+1%3A11&qs_version=ESV)) Humbly step forward in faith to restore trust in relationships and to serve others for Jesus. 
 
-**Paul’s First Recorded Sermon – 13:15-41**
+### Paul’s First Recorded Sermon – 13:15-41
 
-The Spirit also shaped Paul for God’s calling. He used Paul’s education by the famous rabbi Gamaliel and all his other experiences. Paul worshipped as he taught with passion, wisdom and reason. Paul also established a pattern of going first to the synagogue. There, the people – both Jews and God-fearing Gentiles – would know God’s story and promises of salvation.
+The Spirit also shaped Paul for God’s calling. He used Paul’s education by the famous rabbi Gamaliel and all his other experiences. **Paul worshipped as he taught with passion, wisdom and reason**. Paul also established a pattern of going first to the synagogue. There, the people – both Jews and God-fearing Gentiles – would know God’s story and promises of salvation.
 
 Paul’s pattern is effective today:
 + **Paul identifies with the people and their experiences**. Paul uses God’s Word to reaffirm what they believed. They knew God historically worked among His covenant people to provide deliverance from bondage and forgiveness for disobedience.
 + **Paul introduces Jesus Christ and His gospel into their experiences**. All Jewish history leads to David’s greater Son, the God-man Christ Jesus. Paul emphasizes Christ’s cross forgives sin. His resurrection proves God’s power to deliver believers from sin into new life. Like Peter, Paul uses Scriptures to prove fulfillment of prophecy.
 + **Paul urges those hearing to receive Jesus Christ’s salvation**. Paul appeals to his audience, and to you today. God justifies all who believe by grace through faith that Jesus Christ died in our place and was resurrected as proof and our promise of eternal life. God gives this faith as a gift. No efforts, choice of the will, law-keeping or moral standard makes us right with God. (Faith not works: [Ephesians 2:8-10; Romans 3:23; 9:16; James 2:10](https://www.biblegateway.com/quicksearch/?quicksearch=Ephesians+2%3A8-10%3B+Romans+3%3A23%3B+9%3A16%3B+James+2%3A10&qs_version=ESV)) Faith involves repentance, the reorientation of life to fully trust the real but currently invisible Lord Jesus Christ. 
 
-**Ministry Sparks Persecution – 13:42-52**
+### Ministry Sparks Persecution – 13:42-52
 
-Paul and Barnabas encouraged those who believed “to continue in the grace of God.” This means to act on what we now understand to learn more. The gospel spread across the city. The next Sabbath, envious Jews opposed Paul’s teaching. Satan’s evil is behind all efforts to keep God’s truth from those who need Jesus. 
+Paul and Barnabas encouraged those who believed “to continue in the grace of God.” This means to act on what we now understand to learn more. The gospel spread across the city. The next Sabbath, envious Jews opposed Paul’s teaching. **Satan’s evil is behind all efforts to keep God’s truth from those who need Jesus**. 
 
-The missionaries confronted their opponents’ sin against God. Paul announced God’s command for ministry to focus on Gentiles. The Spirit’s new initiative toward Gentiles fulfilled Old Testament prophecies. (Gentile inclusion: [Genesis 12:3; Isaiah 52:13-15; 56:6-7; 60:3](https://www.biblegateway.com/quicksearch/?quicksearch=Genesis+12%3A3%3B+Isaiah+52%3A13-15%3B+56%3A6-7%3B+60%3A3&qs_version=ESV)) God confirmed this shift when they witnessed the Spirit’s outpouring on these Gentiles. The gospel message was received with tremendous joy. 
+The missionaries confronted their opponents’ sin against God. Paul announced God’s command for ministry to focus on Gentiles. **The Spirit’s new initiative toward Gentiles fulfilled Old Testament prophecies**. (Gentile inclusion: [Genesis 12:3; Isaiah 52:13-15; 56:6-7; 60:3](https://www.biblegateway.com/quicksearch/?quicksearch=Genesis+12%3A3%3B+Isaiah+52%3A13-15%3B+56%3A6-7%3B+60%3A3&qs_version=ESV)) God confirmed this shift when they witnessed the Spirit’s outpouring on these Gentiles. The gospel message was received with tremendous joy. 
 
 Paul also identified himself and his missionary companions as servants who bring light to the Gentiles. (Servant: [Isaiah 49:6](https://www.biblegateway.com/quicksearch/?quicksearch=Isaiah+49%3A6&qs_version=ESV)) This has powerful implications for the Church as the body of Christ as Paul fulfills the Christlike role of servant by preaching to the Gentiles. 
 
-Jewish men and women caused political leaders to expel Paul and Barnabas. The cultural act to “shake the dust from their feet” (Shake dust: [Luke 10:10–11](https://www.biblegateway.com/quicksearch/?quicksearch=Luke+10%3A10–11&qs_version=ESV)) symbolized the Jewish persecutors were rejected for their rejection of Jesus, their Messiah. The Antioch converts saw that trials, conflict and even persecution accompany entrance to God’s kingdom. Yet, supernatural joy and transformation as new creations by the Holy Spirit outweighed any opposition. Difficulties deepen spiritual roots and confirm Christ’s power to prevail in every situation. (Aroma of Christ: [2 Corinthians 2:14-16](https://www.biblegateway.com/quicksearch/?quicksearch=2+Corinthians+2%3A14-16&qs_version=ESV)) 
+Jewish men and women caused political leaders to expel Paul and Barnabas. The cultural act to “shake the dust from their feet” (Shake dust: [Luke 10:10–11](https://www.biblegateway.com/quicksearch/?quicksearch=Luke+10%3A10–11&qs_version=ESV)) symbolized the Jewish persecutors were rejected for their rejection of Jesus, their Messiah. The Antioch converts saw that trials, conflict and even persecution accompany entrance to God’s kingdom. Yet, supernatural joy and transformation as new creations by the Holy Spirit outweighed any opposition. **Difficulties deepen spiritual roots and confirm Christ’s power to prevail in every situation**. (Aroma of Christ: [2 Corinthians 2:14-16](https://www.biblegateway.com/quicksearch/?quicksearch=2+Corinthians+2%3A14-16&qs_version=ESV)) 
 
-**Mission in Iconium – Acts 14:1-14:7**
+### Mission in Iconium – Acts 14:1-14:7
 
-Paul and Barnabas walked the new Roman road toward Lystra. They turned left to visit Iconium . The 85-mile (137- km) journey was less strenuous than the climb of 4,000 feet (1,200 m) from Perga to Pisidian Antioch. Their mission already involved humiliation and suffering, but also the Spirit’s amazing productivity.
+Paul and Barnabas walked the new Roman road toward Lystra. They turned left to visit Iconium . The 85-mile (137- km) journey was less strenuous than the climb of 4,000 feet (1,200 m) from Perga to Pisidian Antioch. **Their mission already involved humiliation and suffering, but also the Spirit’s amazing productivity**.
 
-Iconium, in present-day Turkey, was a beautiful city set among farms and orchards. God caused His devoted, persecuted servants to experience an outpouring of His good provisions there. God authenticated His servants’ words by miracles through them like He had done with Peter. 
+Iconium, in present-day Turkey, was a beautiful city set among farms and orchards. God caused His devoted, persecuted servants to experience an outpouring of His good provisions there. **God authenticated His servants’ words by miracles through them like He had done with Peter**.
 
 There are five points to notice in their pioneering visit to Iconium:
-+ A multitude of both Jews and Greeks believed.
-+ Unbelieving Jews turned Gentiles against them.
-+ They stayed a long time to encourage new converts.
-+ The entire city divided between those who supported and opposed Jesus Christ and His messengers.
-+ The missionaries wisely fled their enemies’ murderous plot. (When to flee: [Matthew 10:16, 23](https://www.biblegateway.com/quicksearch/?quicksearch=Matthew+10%3A16,+23&qs_version=ESV)) 
++ A multitude of both Jews and Greeks **believed**.
++ Unbelieving Jews **turned** Gentiles against them.
++ They stayed a long time to **encourage** new converts.
++ The entire city **divided** between those who supported and opposed Jesus Christ and His messengers.
++ The missionaries wisely **fled** their enemies’ murderous plot. (When to flee: [Matthew 10:16, 23](https://www.biblegateway.com/quicksearch/?quicksearch=Matthew+10%3A16,+23&qs_version=ESV)) 
 
-**Mission in Lystra – Acts 14:8-20**
+### Mission in Lystra – Acts 14:8-20
 
-Unlike Iconium, Luke reports very few Jews and no synagogue in Lystra. The Gentiles spoke some Greek, but mostly “the speech of Lycaonia,” unknown to the missionaries. This is where Paul connected with Timothy and his family. (Paul meets Timothy: [Acts 16:1-3](https://www.biblegateway.com/quicksearch/?quicksearch=Acts+16%3A1-3&qs_version=ESV))
+Unlike Iconium, Luke reports very few Jews and no synagogue in Lystra. The Gentiles spoke some Greek, but mostly “the speech of Lycaonia,” unknown to the missionaries. **This is where Paul connected with Timothy and his family**. (Paul meets Timothy: [Acts 16:1-3](https://www.biblegateway.com/quicksearch/?quicksearch=Acts+16%3A1-3&qs_version=ESV))
 
 **The healing of the disabled man – 14:8-10**
 
-Peter had spoken by the Holy Spirit to heal the lame man in Jerusalem. (Lame man: [Acts 3](https://www.biblegateway.com/quicksearch/?quicksearch=Acts+3&qs_version=ESV)) Now Paul commanded a man crippled from birth to stand. As he believed and obeyed, he miraculously received God’s healing. 
+Peter had spoken by the Holy Spirit to heal the lame man in Jerusalem. (Lame man: [Acts 3](https://www.biblegateway.com/quicksearch/?quicksearch=Acts+3&qs_version=ESV)) **Now Paul commanded a man crippled from birth to stand**. As he believed and obeyed, he miraculously received God’s healing. 
 
 **The attempt to worship the apostles – 14:11-14**
 
-The superstitious crowd shouted, “The gods have come down to us in human form !” They sought to offer sacrifices to Barnabas and Paul. The missionaries knew worship only belongs to God. Yet, after their initial response of distress and profound grief, they showed compassion toward these confused unbelievers. Obviously, the crowd knew nothing of the Scriptures. Paul could not preach as he did to Jews. 
+The superstitious crowd shouted, “The gods have come down to us in human form !” They sought to offer sacrifices to Barnabas and Paul. The missionaries knew worship only belongs to God. Yet, after their initial response of distress and profound grief, **they showed compassion toward these confused unbelievers**. Obviously, the crowd knew nothing of the Scriptures. Paul could not preach as he did to Jews. 
 
 **Paul’s missionary appeal – 14:15-18**
 
-Paul started where today’s missionaries to places of unbelief or among those denying the Creator God also begin.
-+ Paul appeals to God-given conscience and reason in every person. (God gives conscience: [Romans 2:12-15](https://www.biblegateway.com/quicksearch/?quicksearch=Romans+2%3A12-15&qs_version=ESV))
+Paul started where **today’s missionaries to places of unbelief or among those denying the Creator God** also begin.
++ Paul **appeals to God-given conscience and reason** in every person. (God gives conscience: [Romans 2:12-15](https://www.biblegateway.com/quicksearch/?quicksearch=Romans+2%3A12-15&qs_version=ESV))
 + He reveals that God created all things. He points to evidences around them.
 + He speaks of God’s grace and kindness to provide for their needs.
 + He points out the true God is unlike the idols they worship in vain.
