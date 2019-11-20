@@ -4,7 +4,7 @@ Acts 13-14
 
 >**Focus**
 >
->“`While they were worshiping the Lord and fasting, the Holy Spirit said, ʻSet apart for me Barnabas and Saul for the work to which I have called them.ʼ`” — Acts 13:2
+>“`While they were worshiping the Lord and fasting, the Holy Spirit said, 'Set apart for me Barnabas and Saul for the work to which I have called them.'`” — Acts 13:2
 >
 >**This Lesson**
 >
