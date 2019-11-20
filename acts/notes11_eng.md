@@ -16,13 +16,13 @@ Acts 13-14
 >
 >What would your daily life be like without things built by others? Our cultures, family histories, educational systems and job markets are a few things we depend on that others began long ago. Often, life goes on as usual in relation to the people and things around us. But, sometimes a pioneer explores new places on earth, builds inventions or leads social changes that launch entirely new periods of human history.
 >
->The church is this type of ongoing pioneer endeavor. Jesus Christ said, “I will build my church, and the gates of Hades will not overcome it.” (gates of Hades: [Matthew 16:18](https://www.biblegateway.com/quicksearch/?quicksearch=Matthew+16%3A18&qs_version=CUVMPT)) He calls His Church to represent His coming kingdom everywhere until He returns. The proper biblical training and church experiences we enjoy tie us directly to these first faithful apostles, disciples and missionaries like Paul and Barnabas. The Spirit still calls modern believers to venture by faith into spiritual and physical struggles to see others live in God’s love and light. 2 In light of Acts 13-14, how much are you willing to sacrifice that others may know the Lord Jesus as Savior?
+>The church is this type of ongoing pioneer endeavor. Jesus Christ said, “I will build my church, and the gates of Hades will not overcome it.” (Gates of Hades: [Matthew 16:18](https://www.biblegateway.com/quicksearch/?quicksearch=Matthew+16%3A18&qs_version=CUVMPT)) He calls His Church to represent His coming kingdom everywhere until He returns. The proper biblical training and church experiences we enjoy tie us directly to these first faithful apostles, disciples and missionaries like Paul and Barnabas. The Spirit still calls modern believers to venture by faith into spiritual and physical struggles to see others live in God’s love and light. (Spiritual struggles: [Ephesians 6:12](https://www.biblegateway.com/quicksearch/?quicksearch=Ephesians+6%3A12&qs_version=CUVMPT)) In light of Acts 13-14, how much are you willing to sacrifice that others may know the Lord Jesus as Savior?
 
 ## The Spirit Initiates Missions – Acts 13:1-4
 
 **The Second Division of Acts**
 
-Acts 13 introduces the Holy Spirit’s next initiatives in God’s plan for Jesus Christ’s Church. 3 Since the Day of Pentecost, the Spirit spread the church in Jerusalem, all Judea and Samaria. The Spirit had displayed His indwelling power in salvation of Jews and God-fearing Gentiles.
+Acts 13 introduces the Holy Spirit’s next initiatives in God’s plan for Jesus Christ’s Church. (Jesus’ commands: [Matthew 28:18-20; Acts 1:8](https://www.biblegateway.com/quicksearch/?quicksearch=Matthew+28%3A18-20%3B+Acts+1%3A8&qs_version=CUVMPT)) Since the Day of Pentecost, the Spirit spread the church in Jerusalem, all Judea and Samaria. The Spirit had displayed His indwelling power in salvation of Jews and God-fearing Gentiles.
 
 Now, chapters 13 and 14 show three main shifts emphasized in the rest of Acts. 
 + Gospel preaching moves from the Jews to Gentiles. 
